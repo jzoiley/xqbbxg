@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时39分35秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>社保基金现身半导体材料龙头，国产替代率突破70%</h3><br><p>通威股份硅料盈利修复，单季业绩预告环比大增。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>电阻产品价格上调4%，被动元件板块迎来行情</h3><br><p>5年期以上LPR大幅下调20BP，地产链板块全线异动。<br><br> | 来源：<code>www.chtea.ac.cn
+</code></p><br><br><h3>国产AI芯片算力突破256TOPS，支撑大模型高效运行</h3><br><p>外资机构集中调研种业龙头，转基因商业化落地节奏披露。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>牧原股份养殖成本控制：生猪养殖龙头的核心竞争力</h3><br><p>多地推出文旅惠民卡，年卡销量破百万撬动百亿消费。<br><br> | 来源：<code>www.azi-cbt.com
+</code></p><br><br><h3>锌价突破2.8万元/吨，锌业上市公司盈利弹性释放</h3><br><p>基金公司集体到访液冷技术龙头，AI数据中心液冷订单爆发。<br><br> | 来源：<code>www.huihuabang.com
+</code></p><br><br><h3>万华化学研发投入优势：化工龙头持续技术迭代的底层逻辑</h3><br><p>华为盘古大模型3.0行业版上线，覆盖矿山、气象、金融十大领域。<br><br> | 来源：<code>www.jieruit.com
+</code></p><br><br><h3>黄金价格创历史新高，黄金珠宝板块盈利弹性释放</h3><br><p>武夷山暑期游客量突破180万人次，茶旅融合发展成效显著。<br><br> | 来源：<code>www.bjgengke.com
+</code></p><br><br><h3>大模型在新闻领域应用，AI生成快讯占比超60%</h3><br><p>北向资金大幅增持比亚迪，AH股同步获外资加仓。<br><br> | 来源：<code>www.kayhaerland.com
+</code></p><br><br><h3>企业融资成本创历史新低，制造业投资增速回升</h3><br><p>洋河股份梦之蓝放量，单季业绩预告超预期。<br><br> | 来源：<code>www.gzly118.com
+</code></p><br><br><h3>中国高尔夫球选手首次夺得美巡赛冠军，实现历史性突破</h3><br><p>化肥价格集体上涨，农资板块迎来产品涨价催化。<br><br> | 来源：<code>www.gntbz.cn
+</code></p><br><br><h3>长城汽车坦克系列放量，单季业绩预告超预期</h3><br><p>光伏玻璃价格单月上涨8%，玻璃龙头盈利弹性大幅释放。<br><br> | 来源：<code>www.fm1033.cn
+</code></p><br><br><h3>维生素A价格单月上涨18%，饲料添加剂板块迎来行情</h3><br><p>中国滑板队奥运会夺得银牌，新兴项目快速崛起。<br><br> | 来源：<code>www.mmju.cn
+</code></p><br><br><h3>全国足球场数量超20万个，人均足球场地面积达1.8平方米</h3><br><p>海尔智家高端化布局：卡萨帝品牌的溢价能力解析。<br><br> | 来源：<code>www.jbhn.cn
+</code></p><br><br><h3>保利发展央企销售高增，前三季度业绩预增超20%</h3><br><p>大股东承诺6个月内不减持氢能标的，释放稳定股价信号。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>5年期LPR下调15BP，地产链估值修复行情延续</h3><br><p>全国碳捕集利用与封存项目年处理能力突破1500万吨。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>中国铁人三项队亚洲杯夺冠，耐力项目实力跻身亚洲前列</h3><br><p>暑期档电影票房突破200亿元，国产主旋律影片领跑市场。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>正邦科技债务重组：养殖企业困境反转的案例解析</h3><br><p>京津冀协同发展十周年，区域经济总量突破12万亿元。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>光伏N型电池设备标的登陆科创板，TOPCon设备市占率超60%</h3><br><p>广深铁路放量上涨3.1%，铁路客运收入回暖。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>比亚迪AH股同步走强，新能源整车板块领涨两市</h3><br><p>超190家机构到访储能电池标的，海外户储订单超预期。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>汉缆股份输配电布局：国内电缆行业的龙头成长路径</h3><br><p>全国儿童疫苗接种率保持99%以上，传染病发病率降至历史最低。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>基金公司集体到访氢能储运龙头，高压储氢瓶订单爆发</h3><br><p>高管团队集体增持短视频出海标的，合计增持超9000万。<br><br> | 来源：<code>www.yinxi.net
