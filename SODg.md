@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分54秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>券商研究所扎堆调研车载雷达标的，激光雷达量产交付节奏</h3><br><p>餐饮消费促进政策，餐饮连锁标的全线异动。<br><br> | 来源：<code>www.huihuabang.com
+</code></p><br><br><h3>磷酸铁锂价格连续上涨7%，动力电池材料环节回暖</h3><br><p>全球半导体产业周期复苏，销售额同比增长18%创历史新高。<br><br> | 来源：<code>www.jieruit.com
+</code></p><br><br><h3>农药价格开启新一轮涨价，农化板块盈利弹性释放</h3><br><p>数字人民币核心标的启动申购，线下场景覆盖突破亿级用户。<br><br> | 来源：<code>www.bjgengke.com
+</code></p><br><br><h3>存量房贷利率下调释放居民现金流，可选消费板块受益</h3><br><p>沪深交易所降费，券商经纪业务标的集体上涨。<br><br> | 来源：<code>www.kayhaerland.com
+</code></p><br><br><h3>沃森生物涨超4.6%，新型疫苗临床进展超预期</h3><br><p>暑期电影票房突破120亿，国产影片包揽票房前十。<br><br> | 来源：<code>www.gzly118.com
+</code></p><br><br><h3>需求侧响应政策落地，电力营销板块集体上涨</h3><br><p>全国马术赛事超百场，马术运动从小众走向大众。<br><br> | 来源：<code>www.gntbz.cn
+</code></p><br><br><h3>CBA联赛总决赛收视率创新高，本土球员表现亮眼</h3><br><p>液冷技术标的开启新股申购，AI数据中心液冷订单爆发式增长。<br><br> | 来源：<code>www.fm1033.cn
+</code></p><br><br><h3>QFII大幅加仓预制菜龙头，B端渠道扩张获海外机构看好</h3><br><p>百亿私募组团调研6G通信企业，技术试验进度超市场预期。<br><br> | 来源：<code>www.mmju.cn
+</code></p><br><br><h3>国产现实题材电影票房占比超60%，贴近生活引发全民共鸣</h3><br><p>上半年高技术产业投资同比增长12.5%，产业升级步伐加快。<br><br> | 来源：<code>www.jbhn.cn
+</code></p><br><br><h3>海天味业调味品渠道优势：国内调味品龙头的下沉网络</h3><br><p>降准资金定向支持绿色能源，光伏风电板块获流动性利好。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>创新药管线进入收获期：CXO、生物医药的行情持续性</h3><br><p>通威股份低位反弹，超跌后的修复行情持续性判断。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>产业资本集中增持休闲食品龙头，线下渠道复购改善获布局</h3><br><p>超220家机构到访AI教育龙头，付费用户规模环比大增。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>东方电气氢能布局：能源装备龙头的第二成长曲线解析</h3><br><p>中药配方颗粒政策放开，中药板块集体走强。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>企业贷款利率创历史新低，制造业投资意愿有望回升</h3><br><p>全国地表水优良水体比例达89%，黑臭水体基本消除。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>全国非遗文旅体验点破2000个，非遗游成暑期新潮流</h3><br><p>机构+北向合力买入当升科技8200万，正极材料标的布局。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>基金公司集体到访消费电子龙头，苹果新品备货量曝光</h3><br><p>宁德时代动力电池技术：麒麟电池+M3P的技术领先性。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>全国汽车拉力赛超20站，赛车运动爱好者规模破百万</h3><br><p>降准释放资金超万亿，流动性宽松支撑A股估值抬升。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>钴价连续上涨13%，3C电池板块盈利提升</h3><br><p>固德威户用储能布局：储能赛道细分龙头的成长路径。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>国产科幻小说海外获奖，中国想象力走向全球读者</h3><br><p>产业资本集中增持休闲食品龙头，线下渠道复购改善获布局。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>全国生态环境监测网络全覆盖，实时数据向公众开放</h3><br><p>意大利经济增速超预期，旅游业拉动经济强劲增长。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>主线行情里不要轻易切换赛道：拿住核心标的才能吃到大行情</h3><br><p>奥地利经济复苏，旅游业和制造业双回暖。<br><br> | 来源：<code>www.szdesign-art.com
